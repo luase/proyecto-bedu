@@ -1,3 +1,5 @@
+![Auriculares de Conducción Ósea](imagen.jpg)
+
 # FAQ sobre Auriculares de Conducción Ósea
 
 ## ¿Qué son los auriculares de conducción ósea?
